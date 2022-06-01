@@ -1,5 +1,5 @@
 # hali-nest
-open source 1u blockered 5x3 artisan holder
+open source 1u blockered 5x3 artisan holder made in about under an hour
 
 big jingesque cuts on the sides, round front lip, smooth chamfers into both. also has my username on the bottom and a heart i put on my stuff sometimes 
 
